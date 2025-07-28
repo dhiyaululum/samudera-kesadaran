@@ -25,5 +25,7 @@ Kadang dari lapar, kesakitan, atau kesenjangan.
 Yang berbahaya bukan materi itu sendiri,  
 Tapi **ketika materi menjadi Tuhan**.  
 Sebagaimana akal bisa dihina oleh dunia,  
-Begitu pula dunia bisa menjadi ladang berpikir —  
-*Bila dipahami dengan hati yang bebas.*
+Begitu pula dunia bisa menjadi ladang berpikir, bila dipahami dengan hati yang merdeka.
+
+> “Jangan sampai kesadaranmu ditundukkan oleh materialisme,
+dan jangan pula baru menjadi sadar setelah ditindas olehnya“
