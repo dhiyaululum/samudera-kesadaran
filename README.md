@@ -4,7 +4,7 @@
 > الحمد لله حمدًا كثيرًا طيبًا مباركًا فيه  
 > والصلاة والسلام على سيدنا محمد، وعلى آله وأصحابه أجمعين
 
-**Samudera kesadaran** adalah seruan spiritual dan filosofis dari dalam rimba zaman, sebuah kumpulan bait reflektif yang mengalir spontan dari hati yang sedang mencari makna.
+**Samudera kesadaran** adalah catatan spiritual dan filosofis dari dalam rimba zaman, sebuah kumpulan bait reflektif yang mengalir spontan dari hati yang sedang mencari makna.
 
 Bait demi bait ditulis untuk merenungi dunia, kehidupan, dan akhirat. Dalam gaya yang bebas namun tetap bertanggung jawab secara nilai, karya ini tidak dimaksudkan sebagai buku baku, melainkan sebagai jejak perenungan yang hidup dan berkembang.
 
@@ -18,17 +18,31 @@ Bait demi bait ditulis untuk merenungi dunia, kehidupan, dan akhirat. Dalam gaya
 
 ---
 
-📌 **Tujuan**
+**Tujuan**
 - Menyampaikan perenungan zaman dalam bentuk ringkas, puitis, dan mengarah ke ketenangan.
-- Menjaga agar makna hidup tetap diikat dalam cahaya Ilahi.
+- Menjaga agar makna hidup tetap diikat dalam cahaya Ilahi dan syariat agama.
+- Menjadi pengingat pribadi bagi penulis dalam menghadapi naik turunya kehidupan.
 
 ---
 
-🔖 **Lisensi**
-Karya ini terbuka untuk dibaca dan dibagikan, selama tidak digunakan untuk hal yang bertentangan dengan niat penulis. Gunakan dengan adab.
+**Lisensi**
+
+Karya ini terbuka untuk dibaca dan dibagikan, selama tidak digunakan untuk hal yang bertentangan dengan niat penulis.
 
 ---
 
-🤲 **Doa**
-Semoga setiap bait yang tertulis menjadi cahaya yang menyinari yang membaca dan menulis, dalam dunia dan akhirat. آمين.
+**Doa**
 
+Semoga setiap bait yang tertulis menjadi cahaya yang menyinari yang menulis dan yang membaca, dalam dunia dan akhirat. آمين.
+
+---
+
+**Larangan**
+
+Jika anda menemukan bahasa atau kata yang ambigu jangan dimaknai secara harfiah atau memberi makna yang bertentangan dengan syariat agama Islam, karena mungkin ada beberapa sebagian bait yang tidak bisa dijelaskan sesuai bahasa yang sesuai atau penulis memiliki keterbatasan bahasa untuk mencoba menjelaskanya.
+
+---
+
+**Syariat adalah jangkar**
+
+Setinggi apapun manusia terbang atau sedalam apapun manusia menyelam, ia tetaplah manusia yang harus tetap tinggal dan berjalan di atas muka bumi mematuhi kehendak Allah atau sunatullah yang sudah ditetapakan, serta mengikuti apa yang sudah Rosullullah ajarkan.
