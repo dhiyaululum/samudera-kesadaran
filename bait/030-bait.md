@@ -10,4 +10,4 @@ Di titik inilah, iman terhadap wahyu (Al-Qur'an) sebagai kompas terakhir yang me
 
 Namun, sebelum akal benar-benar lumpuh dan mencapai ujung pengetahuannya atau ketidaktahuanya, ia wajib meyakini dengan keyakinan yang haq bahwa hakikatnya adanya ruang kosong serta kesadaran yang menyaksikannya tetap membutuhkan penyangga bagi keberadaan situasi atau keadaan tersebut.
 
-Artinya, mutlak ada suatu Sifat atau Dzat yang Wajib Ada (Wajibul Wujud) sebagai tempat bergantung dari segala keadaan ini.
+Artinya, mutlak ada suatu Dzat yang Wajib Ada (Wajibul Wujud) sebagai tempat bergantung dari segala keadaan ini.
