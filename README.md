@@ -43,6 +43,16 @@ Jika anda menemukan bahasa atau kata yang ambigu jangan dimaknai secara harfiah 
 
 ---
 
+**Petunjuk membaca**
+
+Bait-bait dalam _Samudera Kesadaran_ ditulis dalam perjalanan waktu dan mencerminkan pengalaman, perkembangan dan pemahaman penulis.
+
+Oleh karena itu, tulisan di bait yang lebih awal tidak selalu merupakan pemahaman akhir. Beberapa bait dapat diperdalam, dikoreksi, atau dipahami berbeda pada bait-bait berikutnya.
+
+Bacalah keseluruhan bait sebagai sebuah perjalanan pencarian agar menemukan makna utuh dari tulisan ini.
+
+---
 **Syariat adalah jangkar**
 
 Setinggi apapun manusia terbang atau sedalam apapun manusia menyelam, ia tetaplah manusia yang harus tetap tinggal dan berjalan di atas muka bumi mematuhi kehendak Allah atau sunatullah yang sudah ditetapakan, serta mengikuti apa yang sudah Rosullullah ajarkan.
+
